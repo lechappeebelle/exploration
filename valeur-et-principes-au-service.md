@@ -1,6 +1,5 @@
 
-# Lien de consentement - valeur/loi et principes à son service by Julia*
-*oui parceque tout le monde ne me rejoinds pas forcement là dessus.
+# Lien de consentement - valeur/loi et principes à son service by Julia
 
 ## Le consentement 
 
@@ -11,9 +10,11 @@ J'ai opté pour la deuxième proposition. Je m'explique.
 - "faire uniquement ce que l'on a envie de faire" représente pour moi une posture saillante, d'agissant, de l'ordre du masculin (au sens large du terme et non genré). On pourrait représenter ma représentation par un pénis en érection.
 - "ne pas faire ce que l'on a pas envie de faire" représente pour moi, une position d'accueil qui peut choisir de ne pas accueillir, quelque chose qui n'est non pas passif, mais non agissant, quelque chose de l'ordre du féminin (au sens large du terme et non genré). On pourrait représenter ma représentation par une vulve en érection. 
 
-La posture accueillante pouvant choisir d'êter agissante sonne mieux avec le sens que je donne au consentement.
+La posture accueillante pouvant choisir d'être agissante (ou non) sonne mieux avec le sens que je donne au consentement.
 
 ## Les principes au service du consentement
+
+Au fil des échange ont émergé trois potentiels principes au service de la valeur "consentement".
 
 - la vulnérabilité
 - la transparence
@@ -21,11 +22,11 @@ La posture accueillante pouvant choisir d'êter agissante sonne mieux avec le se
 
 Ce que j'en ai compris : 
 
-*La vulnérabilité*, David appelle aussi ça "jouer émotions ouvertes" comme on pourrait le faire lors d'une partie de cartes. Pour moi il s'agit d'accepter de se montrer vulnérable dans les moments où c'est difficile. Accepter de vivre et d'assumer le panel d'émotions, de jugements et d'histoires que je me raconte, qui peuvent me traverser lorsque quelque chose se passe. Le lien avec le consentement ? Celui qui se dessine le plus clairement pour l'instant est *la transparence* : je sais avec quelles cartes je joue. L'autre aussi. Plus facile alors de décider pour moi et pour l'ensemble. J'ai une meilleure vision des conséquences possibles que mes décisions peuvent générer sur le plan émotionnel à l'échelle individuelle et collective. 
+**La vulnérabilité**, David appelle aussi ça "jouer émotions ouvertes" comme on pourrait le faire lors d'une partie de cartes. Pour moi il s'agit d'accepter de se montrer vulnérable dans les moments où c'est difficile. Accepter de vivre et d'assumer le panel d'émotions, de jugements et d'histoires que je me raconte, qui peuvent me traverser lorsque quelque chose se passe. Le lien avec le consentement ? Celui qui se dessine le plus clairement pour l'instant est la transparence : je sais avec quelles cartes je joue. L'autre aussi. Plus facile alors de décider pour moi et pour l'ensemble. J'ai une meilleure vision des conséquences possibles que mes décisions peuvent générer sur le plan émotionnel à l'échelle individuelle et collective. 
 
-*La transparence*, ne pas retenir d'informations, les faire circuler pour que toutes les personnes présentes puissent décider en connaissance dans cause.
+**La transparence**, ne pas retenir d'informations, les faire circuler pour que toutes les personnes présentes puissent décider en connaissance dans cause.
  
-"La souveraineté individuelle" ou responsabilité, être (autant que faire se peut) "responsable" de ce que je vis, ressens, pense, interprète, pour ne pas "le faire payer" à l'autre. 
+**"La souveraineté individuelle"** ou responsabilité, être (autant que faire se peut) "responsable" de ce que je vis, ressens, pense, interprète, pour ne pas "le faire payer" à l'autre. Et dans le sens inverse, ne pas faire preuve d'ingérence vis-à-vis de ce que l'autre peut faire ou ressentir, lui laisser sa souveraineté individuelle, lui faire confiance. Je vois là un challenge d'équilibre à trouver entre le soutien et la prise de pouvoir sur l'autre.
 
 ## Illustration par exemple vécu : j'ai pas ramassé le caca du chien. 
 
