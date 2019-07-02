@@ -4,7 +4,7 @@
 
 ## Le consentement 
 
-David a fait 2 propositions sur cette définition. Selon lui, le consentement serait soit *faire uniquement ce que l'on a envie de faire* soit *ne pas faire ce que l'on a pas envie de faire*. 
+David a fait 2 propositions sur cette définition. Selon lui, le consentement serait soit **faire uniquement ce que l'on a envie de faire** soit **ne pas faire ce que l'on a pas envie de faire**. 
 
 J'ai opté pour la deuxième proposition. Je m'explique.
 
@@ -54,6 +54,7 @@ Ce que j'analyse aujourd'hui : je ne suis pas d'accord avec la façon dont tout 
 Je n'ai pas de réponse et je ne crois pas en avoir besoin mais voilà ce que j'ai appris :
 - même avec les pontes de l'intention du consentement, ce dernier peut-être piétiné en 5 secondes
 - il peut ne pas y avoir de solution 
+- J'ai eu beau faire un gros travail émotionnel pour comprendre ce qui se passe réellement en moi afin d'agir en conséquence, la question du respect de mon consentement se pose quand même
 - le respect du consentement est probablement indiscociable du non-respect du consentement et il se peut que notre travail commence par là : accepter de ne pas pouvoir le respecter pour le respecter vraiment.
 - Vulnérabilité, transparence et souveraineté individuelle sont des principes désormais vérifiés : ils sont (pour moi) indiscociables de l'expérience consentement, car ils permettent d'affiner les expériences et d'aborder cette valeur dans toute sa subtilité.
 
