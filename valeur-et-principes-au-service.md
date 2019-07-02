@@ -38,7 +38,7 @@ Je suis gênée. Je n'aime pas quand mon chien embête les autres et puis ramass
 
 20 min plus tard, je reçois ce message : "Ni Sabine ni Stephane ni moi n'avons envie de gérer le caca de Corto En alternative, si tu souhaites le gérer, je te propose que je reste dans le AirBnB jusqu'à ce que tu reviennes". Je décide de faire l'aller retour pour ramasser la crotte.
 
-J'ai honte, je ne comprends pas, et je suis en colère. Commence alors un démélâge émotionnel monumental pour moi. 
+J'ai honte, je ne comprends pas, et je suis en colère. Je dois faire le tri sur ce qu'il se passe pour moi pour savoir comment gérer la situation avec les autres. Sans ça je risque d'(ré)agir sans conscience et de ne pas pouvoir prendre soin du consentement de chacun·e. Commence alors un démélâge émotionnel monumental pour moi. 
 
 - "Je pleure, je réagis très fort, je ressens beaucoup de honte et c'est violent" : c'est le résultat de mon histoire et d'une grosse blessure qui s'est activée. Il.elle.s n'y sont pour rien. Pas question que ça rentre dans le "je ne suis pas d'accord". Je vais plutôt le mettre dans la case "voilà ce que ça m'a fait vivre et pourquoi".
 - "Je suis dégoutée de devoir faire 1h30 de route avec cette chaleur pour une crotte." OK factuel, c'est normal c'est chiant. 
@@ -50,12 +50,14 @@ Je m'en retourne donc à la maison. Je me sens mal et j'ai pas envie de les croi
 
 - "Je ne veux pas les laisser sans rien, il doivent rien comprendre, j'ai envie d'en reparler même si ça me fait flipper grave". J'envoie un message qui raconte rapido ce qui se passe pour moi, pourquoi je disparaîs comme ça et je propose 4h de crénaux le lendemain pour en reparler.
 
-Ce que j'analyse aujourd'hui : je ne suis pas d'accord avec la façon dont tout cela à été géré mais en y regardant de plus près, quelque aurait été la stratégie adoptée quelqu'un·e aurait été lésé. Je crois que cette fois-si ça a été moi. Je n'avais pas envie de faire toute cette route. Et en même temps il m'était impossible de le laisser en l'état. Ai-je piétiné mon propre consentement ? Pour respecter le leur ? Pour faire ce qui me semblait juste vis-à-vis du propriétaire ? Ais-je choisis de porter seule la responsabilité de cette crotte en faisant demi-tour ou est-ce les autres qui m'ont posé un ultimatum "soit tu reviens, soit on laisse le caca" me laissant ainsi avec la seule responsabilité de gérer la situation ?
+## Le lien avec le consentement  
 
-Je n'ai pas de réponse et je ne crois pas en avoir besoin mais voilà ce que j'ai appris :
+Je ne suis pas d'accord avec la façon dont tout cela à été géré mais en y regardant de plus près, quelque aurait été la stratégie adoptée quelqu'un·e aurait été lésé. Je crois que cette fois-si ça a été moi. Je n'avais pas envie de faire toute cette route. Et en même temps il m'était impossible de le laisser en l'état. Ai-je piétiné mon propre consentement ? Pour respecter le leur ? Pour faire ce qui me semblait juste vis-à-vis du propriétaire ? Ais-je choisis de porter seule la responsabilité de cette crotte en faisant demi-tour ou est-ce les autres qui m'ont posé un ultimatum "soit tu reviens, soit on laisse le caca" me laissant ainsi avec la seule responsabilité de gérer la situation ?
+
+**Les apprentissages possibles**
 - même avec les pontes de l'intention du consentement, ce dernier peut-être piétiné en 5 secondes
 - il peut ne pas y avoir de solution 
-- J'ai eu beau faire un gros travail émotionnel pour comprendre ce qui se passe réellement en moi afin d'agir en conséquence, la question du respect de mon consentement se pose quand même
+- j'ai eu beau faire un gros travail émotionnel pour comprendre ce qui se passe réellement en moi afin d'agir en conséquence, la question du respect de mon consentement se pose quand même
 - le respect du consentement est probablement indiscociable du non-respect du consentement et il se peut que notre travail commence par là : accepter de ne pas pouvoir le respecter pour le respecter vraiment.
 - Vulnérabilité, transparence et souveraineté individuelle sont des principes désormais vérifiés : ils sont (pour moi) indiscociables de l'expérience consentement, car ils permettent d'affiner les expériences et d'aborder cette valeur dans toute sa subtilité.
 
